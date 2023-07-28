@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @tamudashe
+- 👋 Hi, I’m Tamudashe
